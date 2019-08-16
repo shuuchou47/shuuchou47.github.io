@@ -1,0 +1,1 @@
+# shuuchou47.github.io
